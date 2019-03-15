@@ -1,2 +1,2 @@
-# Discord
-S
+# Sociopat
+Vítej mezi vrahy!
